@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Craft for macOS automation with Craft for macOS custom Automation: quick search & collaboration. Featuring quick search and collaboration, it's the best choice
 
 
 
